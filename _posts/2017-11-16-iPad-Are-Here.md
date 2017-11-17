@@ -1,0 +1,9 @@
+---
+layout: post
+title: iPads are here!
+author: Henry Pitterino
+---
+
+Yes, they're finally here! A cart of 30 of Apple's state-of-the-art tablets are here at Gibbons Middle School. Now, iPads will be accessible to students and teachers alike along with Chromebooks, so we'll have twice as much power as we did before. Not only do we have twice as much power, we have even more apps and tools for us to use. From Garage Band to Green Screen, we can record videos with excellent quality with an easy to use and familiar interface. With iPads and Chromebooks working together hand in hand, we will have power that could do incredible work!
+"How will this work?" You may be asking yourself. The iPads can be reserve by teachers for use in their classrooms. If you would like to use the iPads, all you have to do is ask, and if she/he says yes, than you can use it for a limited time. The amount of time that a student is allowed to use the iPad depends on how many students need it, the condition of the iPad, how much time is left in the period, and the desire of the teacher's need for it. If all of those conditions are appropriate, than tap away! Just don't forget that everyone needs the iPads, so you must be as responsible as you can be, treat as if it was your own!
+ If you have any questions, feel free to ask any of the Tech Squad members. Tap away!
